@@ -1,1 +1,1 @@
-Snowfalls u
+Snowfalls up
